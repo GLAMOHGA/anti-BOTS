@@ -5,3 +5,7 @@
 
 by vomagla
 
+ВЫШЛА НОВАЯ ВЕРСИЯ: https://github.com/GLAMOHGA/telegram-anti-nakrutka
+https://github.com/GLAMOHGA/telegram-anti-nakrutka
+https://github.com/GLAMOHGA/telegram-anti-nakrutka
+https://github.com/GLAMOHGA/telegram-anti-nakrutka
